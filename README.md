@@ -10,3 +10,6 @@ Menurut saya INTRIVIA merupakan kegiatan yang bagus terutama pada rangkaian hari
 
 ## Kesan Pesan Cluster 8 Sejauh Ini 
 Cluster nya banyak orang yang seru, mentor nya juga asik dan baik banget 
+
+## Harapan Kuliah 
+Bisa mendapat ilmu yang mendukung untuk masa depan saya di dunia IT dan juga mendapat banyak teman yang bisa diandalkan dan juga akrab
